@@ -7,3 +7,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything!
 - 📫 How to reach me: @marcusmyrrha
 - 😄 Pronouns: he/him
+- ⚡ Fun fact: Han shot first!
